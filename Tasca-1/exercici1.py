@@ -1,0 +1,1 @@
+seria exercici1 
